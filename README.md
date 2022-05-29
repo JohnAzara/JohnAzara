@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JohnAzara
 - 👀 I’m interested in ... "Technology engineer".
-- 🌱 I’m currently learning ... 
+- 🌱 I’m currently learning ... with Technology.
 - 💞️ I’m looking to collaborate on ... Canvas and whatsapp.
 - 📫 How to reach me ... azaraj121@macomb.edu
 - 📺 My favorite TV show is ... "Last Week Tonight with John Oliver".
